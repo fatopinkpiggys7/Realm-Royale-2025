@@ -1,4 +1,4 @@
-# 🛡️ Realm Royale Cheat 2025 | ESP, Aimbot, No Recoil & More | Undetected
+# Realm Royale Cheat 2025 | ESP, Aimbot, No Recoil & More | Undetected
 
 🔥 Dominate the battlegrounds of Realm Royale with the **latest undetected cheat** built for performance, stability, and stealth.  
 Whether you prefer **stealth eliminations** or full-on **rage gameplay**, this all-in-one hack delivers.
